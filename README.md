@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GraceieGirl
-- 👀 I’m interested in sewing amd art!
+- 👀 I’m interested in sewing and art!
 - 🌱 I’m currently learning code.
 - 💞️ I’m looking to collaborate on how to code.
 - 📫 How to reach me: I have absolutely no idea!
